@@ -5,7 +5,7 @@ Say Gex Enterprises
 About us
 </h2>
 
-The idea of Say Gex Enterprises was first thought of by two conjoined twins, Privatany (aka Skd) and Brad Pit. Ironically, Say Gex Enterpries specializes in the field of eugenics and genetic enhancement. 
+The idea of Say Gex Enterprises was first thought of by two noble thug hunters, Danil Ivanov (also known as skd) and Brad Pit. Ironically, Say Gex Enterpries specializes in the field of eugenics and genetic enhancement. 
 
 
 After their "release" from a maximum security prison on June 23rd, They worked hard to establish the Say Gex Enterprises HQ.
