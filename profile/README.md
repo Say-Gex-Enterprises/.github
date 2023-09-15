@@ -1,16 +1,18 @@
 <h1 align="Center">  
-Say Gex Enterprises
+Say Gex Laboratory
 </h1>
 <h2 align="Left">
 About us
 </h2>
 
-The idea of Say Gex Enterprises was first thought of by two noble thug hunters, Danil Ivanov (also known as skd) and Brad Pit. Ironically, Say Gex Enterpries specializes in the field of eugenics and genetic enhancement. 
+The idea of the Say Gex Laboratory was first thought of by two noble thug hunters, Danil Ivanov (also known as skd) and Brad Pit. Ironically, the Say Gex Enterpries specializes in the field of eugenics and genetic enhancement.
+
+THE LABORATORY IS A CHILD COMPANY OF THE MEGACORPORATION "SAY GEX HOLDING". SAY GEX HOLDING HOLDS 100% OF THE COMPANY AND IS RESPONSIBLE FOR ALL STAFF PERSONNEL AND RESEARCH PROJECTS.
 
 
-After their "release" from a maximum security prison on June 23rd, They worked hard to establish the Say Gex Enterprises HQ.
+After their "release" from a maximum security prison on June 23rd, They worked hard to establish the first research facility under the Say Gex Holding HQ, right in their basement.
 
-Say Gex Enterprises also plays a prominent role in the field of the pharmaceutical industry. Just one year after we founded our organization, We released the first and most efficient vaccine for diabetes (However, it's only obtainable through illegitmate means for now due to the blatant racism of the FDA)
+Say Gex Laboratory also plays a prominent role in the field of the pharmaceutical industry. Just one year after we founded our organization, We released the first and most efficient vaccine for diabetes (However, it's only obtainable through illegitmate means for now due to the blatant racism of the FDA)
 
 <h3 align "Left">
 Join us today!
