@@ -5,7 +5,7 @@ Say Gex Laboratory
 About us
 </h2>
 
-The idea of the Say Gex Laboratory was first thought of by two noble and conjoined twins thug hunters, Danil Ivanov (also known as skd) and Brad Pit. Ironically, the Say Gex Enterpries specializes in the field of eugenics and genetic enhancement.
+The idea of the Say Gex Laboratory was first thought of by two noble and conjoined twins, Danil Ivanov (also known as skd) and Brad Pit. Ironically, the Say Gex Enterpries specializes in the field of eugenics and genetic enhancement.
 
 THE LABORATORY IS A CHILD COMPANY OF THE MEGACORPORATION "SAY GEX HOLDING". SAY GEX HOLDING HOLDS 100% OF THE COMPANY AND IS RESPONSIBLE FOR ALL STAFF PERSONNEL AND RESEARCH PROJECTS.
 
